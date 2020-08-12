@@ -8,4 +8,4 @@ I'm a product and software developer with a background in strategy and marketing
 - [Twitter](http://twitter.com/cestmarcel)
 
 😊  Pronouns:
-He/him/his
+He/him
